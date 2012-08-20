@@ -1,1 +1,0 @@
-Please post all issues and suggestions related to LifeFletcher here.
